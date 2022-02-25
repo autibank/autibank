@@ -21,7 +21,8 @@ Sócia: Delayne dos Santos Jacanrandá<br />
 E-mail: delayne18@gmail.com<br />
 Celular: (21) 4128-7177<br />
 
-Nome: Katiana Araujo<br />
+Nome:  Katiana Karla Araújo Fonseca de Araújo Santos<br />
+CPF: 137.672.89-41
 Celular: (21) 99081-6812<br />
 
 
