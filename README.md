@@ -2,7 +2,7 @@
 
 ## Iniciativa para centralizar informações e ajudar pessoas com o seus processos!
 
-Reclamações de pessoas lessadas pelo esquema do [AutiBank](https://www.reclameaqui.com.br/empresa/autibank/)<br />
+Reclamações de pessoas lesadas pelo esquema do [AutiBank](https://www.reclameaqui.com.br/empresa/autibank/)<br />
 
 Nome: Yuri medeiros correa<br />
 CPF: 101.618.007-18<br />
