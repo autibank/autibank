@@ -2,7 +2,7 @@
 
 ## Iniciativa para centralizar informações e ajudar pessoas com o seus processos!
 
-Reclamações de pessoas lessadas pelo esquema do AutiBank(https://www.reclameaqui.com.br/empresa/autibank/)<br />
+Reclamações de pessoas lessadas pelo esquema do [AutiBank](https://www.reclameaqui.com.br/empresa/autibank/)<br />
 
 Nome: Yuri medeiros correa<br />
 CPF: 101.618.007-18<br />
@@ -11,7 +11,7 @@ RG: 21773082-2<br />
 E-mail: yurimedeirooos@gmail.com<br />
 Possivel endereço: Avenida 9 de Julho, 4015, Jardim Paulista, São Paulo/SP<br /><br />
 
-📷 Conta no Instagram da esposa do Yuri: luanaccorrea_(https://www.instagram.com/luanaccorrea_)
+📷 Conta no Instagram da esposa do Yuri: [luanaccorrea_](https://www.instagram.com/luanaccorrea_)
 
 ### Informações da unidade de Jõa Pessoa
 
