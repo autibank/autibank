@@ -13,6 +13,13 @@ Possivel endereço: Avenida 9 de Julho, 4015, Jardim Paulista, São Paulo/SP<br 
 
 📷 Conta no Instagram da esposa do Yuri: [luanaccorrea_](https://www.instagram.com/luanaccorrea_)
 
+### Informações da unidade do Rio de Janeiro
+
+XT SOLUCOES FINANCEIRAS LTDA<br />
+CNPJ: 32.455.335/0001-90<br />
+ENDEREÇO: AVENIDA RIO BRANCO, 00014 PAV 13 - CENTRO CEP: 20090-000
+Sócio: Gabriel Oliveira Fidelis - Sócio-Administrador
+
 ### Informações da unidade de Jõa Pessoa
 
 JPX CONSULTORIA EM GESTAO EMPRESARIAL E FINANCEIRA LTDA<br />
