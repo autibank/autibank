@@ -17,8 +17,8 @@ Possivel endereço: Avenida 9 de Julho, 4015, Jardim Paulista, São Paulo/SP<br 
 
 XT SOLUCOES FINANCEIRAS LTDA<br />
 CNPJ: 32.455.335/0001-90<br />
-ENDEREÇO: AVENIDA RIO BRANCO, 00014 PAV 13 - CENTRO CEP: 20090-000
-Sócio: Gabriel Oliveira Fidelis - Sócio-Administrador
+ENDEREÇO: AVENIDA RIO BRANCO, 00014 PAV 13 - CENTRO CEP: 20090-000<br />
+Sócio: Gabriel Oliveira Fidelis - Sócio-Administrador<br />
 
 ### Informações da unidade de Jõa Pessoa
 
