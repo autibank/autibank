@@ -2,6 +2,8 @@
 
 ## Iniciativa para centralizar informações e ajudar pessoas com o seus processos!
 
+[AutiBank: a história do niteroiense de 30 anos suspeito de montar uma pirâmide financeira de proporções nacionais](https://extra.globo.com/casos-de-policia/autibank-historia-do-niteroiense-de-30-anos-suspeito-de-montar-uma-piramide-financeira-de-proporcoes-nacionais-25412626.html)
+
 [Reclamações de pessoas lesadas pelo esquema do AutiBank](https://www.reclameaqui.com.br/empresa/autibank/)<br />
 
 Nome: Yuri medeiros correa<br />
