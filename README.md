@@ -19,6 +19,18 @@ RG: 21773082-2<br />
 E-mail: yurimedeirooos@gmail.com<br />
 Possivel endereço: Avenida 9 de Julho, 4015, Jardim Paulista, São Paulo/SP<br /><br />
 
+Vinicius Verissimo Porto <br />
+RG: 03969407114 <br />
+CNH: 2280818138 <br />
+CPF: 122.866.977-52 <br />
+Nascimento: 27/11/1987 <br />
+CEP: 247230-30, SN, Complemento: LT28QD 80 <br />
+
+Amabilly Evelly Velmiro Castro <br />
+CFP: 05614672348 <br />
+Nascimento: 20/09/1991 <br />
+email: amabillypop@hotmail.com <br />
+
 Rachel Domingues Escobar Dias Silva (CPF/CNPJ: ***822907**) <br />
 
 📷 Conta no Instagram da esposa do Yuri: [luanaccorrea_](https://www.instagram.com/luanaccorrea_)
