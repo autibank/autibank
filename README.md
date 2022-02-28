@@ -4,6 +4,10 @@
 
 [AutiBank: a história do niteroiense de 30 anos suspeito de montar uma pirâmide financeira de proporções nacionais](https://extra.globo.com/casos-de-policia/autibank-historia-do-niteroiense-de-30-anos-suspeito-de-montar-uma-piramide-financeira-de-proporcoes-nacionais-25412626.html)
 
+[Clientes denunciam golpe de banco digital carioca](https://recordtv.r7.com/domingo-espetacular/videos/clientes-denunciam-golpe-de-banco-digital-carioca-28022022)
+
+[Portal Viu: Niteroiense é suspeito de montar pirâmide financeira de proporções nacionais](https://www.portalviu.com.br/brasil/niteroiense-de-30-anos-suspeito-de-montar-piramide-financeira-de-proporcoes-nacionais)
+
 https://oglobo.globo.com/rio/autibank-historia-do-niteroiense-de-30-anos-suspeito-de-montar-uma-piramide-financeira-de-proporcoes-nacionais-25411547
 
 [Reclamações de pessoas lesadas pelo esquema do AutiBank](https://www.reclameaqui.com.br/empresa/autibank/)<br />
@@ -14,6 +18,8 @@ Nascimento: 22/12/1991<br />
 RG: 21773082-2<br />
 E-mail: yurimedeirooos@gmail.com<br />
 Possivel endereço: Avenida 9 de Julho, 4015, Jardim Paulista, São Paulo/SP<br /><br />
+
+Rachel Domingues Escobar Dias Silva (CPF/CNPJ: ***822907**) <br />
 
 📷 Conta no Instagram da esposa do Yuri: [luanaccorrea_](https://www.instagram.com/luanaccorrea_)
 
